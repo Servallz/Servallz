@@ -1,2 +1,2 @@
-<img src="https://media.tenor.com/iTm8wqNUZMsAAAAi/divider.gif" alt="Divider Sticker"/><img src="https://media.tenor.com/iTm8wqNUZMsAAAAi/divider.gif" alt="Divider Sticker"/>
+<img src="https://media.tenor.com/aODlZnAXYKwAAAAi/divider-blue.gif" alt="Divider Blue Sticker"/><img src="https://media.tenor.com/aODlZnAXYKwAAAAi/divider-blue.gif" alt="Divider Blue Sticker"/>
 
