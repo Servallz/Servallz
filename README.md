@@ -1,1 +1,2 @@
-<img src="https://64.media.tumblr.com/d38ff3b31b15a28c1838cc752628c4d6/3a9adf60716557fd-d0/s1280x1920/c06f79afa166030592905a1eff883be1f487577c.gifv" alt="#blue dividers from khaer"/>
+<div align="center">
+<img src="https://64.media.tumblr.com/cf711c33262e01e6a401067bf8f1df09/85ffa3ea44a449a2-9b/s400x600/16b8cfc8e5c27a57ec0181686219d25a1ff8068d.gifv" alt="#neocities from fish in a jar"/>
